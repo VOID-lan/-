@@ -1,4 +1,4 @@
-# 🔥 SCARLET-MD BOT 🔥
+# 🔥 ⸸𝖂𝖎𝖈𝖐𝖊𝖉 𝕺𝖒𝖊𝖍🜏 BOT 🔥
 *Next-Generation WhatsApp Multi-Device Automation*
 
 <div align="center">
